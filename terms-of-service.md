@@ -28,4 +28,4 @@ Please refer to our Privacy Policy to understand how we collect, use, and protec
 We reserve the right to modify these terms at any time, with changes becoming effective when published on this page.
 
 ## 8. Governing Law
-These terms will be governed by the laws of [Your Country/State], regardless of conflict of law principles.
+These terms will be governed by the laws of [France], regardless of conflict of law principles.
